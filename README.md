@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @defnexdogan
 - 👀 I’m interested in photography.
-- 🌱 I’m currently learning illustrator.
+- 🌱 I’m currently learning Figma.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on Instagram @defnexdogan
 
